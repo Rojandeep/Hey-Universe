@@ -1,3 +1,3 @@
 # Hey-Universe
 How are you doing?
-I hope you fine
+I hope you are fine
