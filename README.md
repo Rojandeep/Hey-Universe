@@ -1,4 +1,4 @@
 # Hey-Universe
-How you all are doing?
+How are all you doing?
 I hope you are fine.
 Let's get started.
